@@ -1,4 +1,4 @@
-# Bhagwad Gita Summary
+# Bhagavad Gita Summary
 
 ### Total 700 shlokas
 - 574 by Shri Krishna
@@ -8,10 +8,10 @@
 
 ### Chapter-wise distribution
 - 1st chapter - Vishada Yoga (Stage setup)
-- 2nd chapter - Synopsis (Summary of the Bhagwad Gita)
+- 2nd chapter - Synopsis (Summary of the Bhagavad Gita)
 - 3rd to 6th chapter - Karma Yoga Ashtanga Yoga (Do and Don't)
 - 7th to 12th chapter - Bhakti Yoga (Ultimate goal of our life)
-- 13th to 17th chapter - Gyan Yoga (Sattvagun, Tamogun, Rajogun and practical knowledge of Gita)
+- 13th to 17th chapter - Gyan Yoga (Sattvagun, Tamogun, Rajogun and practical knowledge of Bhagavad Gita)
 - 18th chapter - Conclusion
 
 ### Terms:
