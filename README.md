@@ -1,5 +1,7 @@
 # Bhagavad Gita Summary
 
+To solve all the problems in your life, [click here](https://github.com/Pavan49719/bhagavad-gita-summary/blob/main/images.md#find-solution-for-your-problems-in-bhagavad-gita)
+
 ### Total 700 shlokas
 - 574 by Shri Krishna
 - 84 by Arjun
