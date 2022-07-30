@@ -19,7 +19,7 @@ To solve all the problems in your life, [click here](https://github.com/Pavan497
 ### Terms:
 - Panchjanya - Krishna's conch
 - Devdatta - Arjun's conch
-
+- Vaikuntha (Meaning: Without anxiety) - God's home
 
 
 ## 1st chapter - Vishada Yoga (Stage setting up)
@@ -63,3 +63,21 @@ Bhakti shastra >> Darma shastra > Artha shastra
 ### Eternal nature:
 - Body - Already dead
 - Soul - Never dies
+
+### If we try our best in devotion (Bhakti)
+- Fail -> will get heaven -> rebirth -> retry bhakti 
+- Success -> will get vaikunth 
+That's why we should never hesitate to do bhakti because eventually bhakti will take us to Vaikuntha.
+
+
+### Sakam karmayog (karmakand level) 
+- Helps to go to heaven
+- These people are attracted with the fruits of their actions.
+- These are short knowledge people. 
+- Sakam karmayog is mentioned in the Gita so that people can develop some faith in shastras.
+
+### Nishkam karmayog
+- The person is not attracted with the fruits of his actions
+- Gives all the fruits to the God
+- But these people are driven more by their psycho physical nature.
+- These people do what they like to do and not what is required to be done in the service of God.
