@@ -23,7 +23,7 @@
 - Chapter 16 - Shloka 19
 - Chapter 18 - Shloka 71
 
-## Death ofaLoved one
+## Death of a Loved one
 - Chapter 2 - Shloka 13
 - Chapter 2- Shloka 20
 - Chapter 2 - Shloka 22
