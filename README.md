@@ -92,3 +92,16 @@ That's why we should never hesitate to do bhakti because eventually bhakti will 
 - Heaven - Temporary happiness
 - Formless truth (Nirakar Brahma) - Long but still temporary happiness
 - Vaikuntha - Permeant happiness
+
+Steps of fall down
+1. Contemplation of sense objects
+2. Attachment
+3. Lust -> Satisfied -> Greed
+4. Lust -> Not satisfied -> Angry
+5. Deluated
+6. Memory lost (Lessons learnt from privious experiences)
+7. Intelligence lost
+8. Fall down
+
+
+## 3rd chapter - Synopsis (Summary of the Gita)
