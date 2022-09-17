@@ -67,6 +67,7 @@ Bhakti shastra >> Darma shastra > Artha shastra
 ### If we try our best in devotion (Bhakti)
 - Fail -> will get heaven -> rebirth -> retry bhakti 
 - Success -> will get vaikunth 
+
 That's why we should never hesitate to do bhakti because eventually bhakti will take us to Vaikuntha.
 
 
@@ -114,5 +115,6 @@ That's why we should never hesitate to do bhakti because eventually bhakti will 
 1. Soul (Desire) - Based on law of Attraction
 2. Material nature (Facilitates) - Based on law of Karma
 3. Super soul (Approving Authority) - Based on devotion/love for a supreme lord
+
 Order of dominance 
 - Soul < Material nature < Super soul 
