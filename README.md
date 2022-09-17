@@ -81,3 +81,14 @@ That's why we should never hesitate to do bhakti because eventually bhakti will 
 - Gives all the fruits to the God
 - But these people are driven more by their psycho physical nature.
 - These people do what they like to do and not what is required to be done in the service of God.
+
+### Karma
+- Bad karma -> Hell (Poison)
+- Good karma -> Heaven (Sugar coated poison)
+- Akarma (Devotion) -> Vaikuntha (No poison at all)
+
+### Happiness in different worlds
+- Material world - Happiness & sadness both together
+- Heaven - Temporary happiness
+- Formless truth (Nirakar Brahma) - Long but still temporary happiness
+- Vaikuntha - Permeant happiness
