@@ -104,4 +104,4 @@ Steps of fall down
 8. Fall down
 
 
-## 3rd chapter - Synopsis (Summary of the Gita)
+## 3rd chapter 
