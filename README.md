@@ -93,7 +93,7 @@ That's why we should never hesitate to do bhakti because eventually bhakti will 
 - Formless truth (Nirakar Brahma) - Long but still temporary happiness
 - Vaikuntha - Permeant happiness
 
-Steps of fall down
+### Steps of fall down
 1. Contemplation of sense objects
 2. Attachment
 3. Lust -> Satisfied -> Greed
@@ -105,3 +105,14 @@ Steps of fall down
 
 
 ## 3rd chapter 
+
+### Relation between knowledge, actions & bhakti
+- Knowledge (Brain) + Actions (Yagya) = Bhakti (Realisation)
+- Bhakti - When knowledge comes into action
+
+### Three Doers of this world
+1. Soul (Desire) - Based on law of Attraction
+2. Material nature (Facilitates) - Based on law of Karma
+3. Super soul (Approving Authority) - Based on devotion/love for a supreme lord
+Order of dominance 
+- Soul < Material nature < Super soul 
