@@ -120,7 +120,7 @@ Order of dominance
 - Soul < Material nature < Super soul 
 
 
-## 4th chapter - Dyan Yog
+## 4th chapter - Gyan Yog
 
 ### Qualification in a person to acquire the spiritual knowledge
 1. Become a devotee of the God
