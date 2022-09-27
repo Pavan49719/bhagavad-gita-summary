@@ -105,7 +105,7 @@ That's why we should never hesitate to do bhakti because eventually bhakti will 
 8. Fall down
 
 
-## 3rd chapter 
+## 3rd chapter - Karma Yog
 
 ### Relation between knowledge, actions & bhakti
 - Knowledge (Brain) + Actions (Yagya) = Bhakti (Realisation)
@@ -118,3 +118,45 @@ That's why we should never hesitate to do bhakti because eventually bhakti will 
 
 Order of dominance 
 - Soul < Material nature < Super soul 
+
+
+## 4th chapter - Dyan Yog
+
+### Qualification in a person to acquire the spiritual knowledge
+1. Become a devotee of the God
+2. Consider God as your well wisher
+
+### Two types of Maya
+1. Yog Maya - Spritual nature
+- Lord directs yog maya
+- Yog maya is a expansion of Krishna's own adi-shakti Shrimati Radhika
+2. Maha Maya - Material nature
+- Maha maya directs us
+
+### Contaminants to be removed for purification
+1. Attachment to present
+2. Fear of future
+3. Anger on past
+
+### Three realisation/expansions of the God
+1. As a Bhagwan (Best realisation) - Adi rup (Krishna)
+2. Parmatma (Good realisation) - Situated in heart
+3. Bhramha (Partial realisation) - Nirakar Prakash, great, not in three modes of natures, personification of Amrut (Nectar), immortal
+
+### Four Varna Vyavastha 
+1. Brahman 
+- Priests or teachers class
+- in Goodness (Satva gun)
+- Live on Charity
+2. Kshatriya 
+- Warrior & Adminstrator class 
+- in Passion (Rajo gun)
+- Live on Taxes
+3. Vaishya 
+- Merchantile ], agricultural, business class
+- in Passion + Ignorance (Rajo + Tamo gun)
+- Live on Profit
+4. Shudra 
+- Worker, labour class
+- in Ignorance (Tamo gun)
+- Live on Salary
