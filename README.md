@@ -160,3 +160,39 @@ Order of dominance
 - Worker, labour class
 - in Ignorance (Tamo gun)
 - Live on Salary
+
+### Sacrifice in Bhakti
+1. Possessions 
+- Offered by Grihastha
+- Learns by experience
+2. One Self
+- Offered by Bhramachari
+- Learns by hearing
+
+### Ashtanga Yogas
+- Step 1. Yam - Do'es
+- Step 2. Niyam - Don'ts 
+- Step 3. Aasan - Body exercises
+- Step 4. Pranayam - Breathing exercises 
+- Step 5. Pratyahara - No material activities at all
+- Step 6. Dharan - Beginning stage of meditation 
+- Step 7. Dyan - Successful meditation 
+- Step 8. Samadhi - Effortless meditation
+
+### When karmas are dedicated as service to God and knowledge is acquired so that one can become detach from material world and attach to the lord that means this person becomes self settled 
+
+
+### Yoga ladder:
+0. Animal Life
+1. Sakama karma yoga - Psycho-physical nature
+2. Nishkama karma yoga - Psycho-physical nature
+3. Gyan yoga - Theoretical understanding 
+4. Ashtanga yoga - Practical application 
+5. Bhakti yoga - Realisations
+
+### Yoga elevator
+0. Animal Life
+1. Association of devotees
+2. Sadhana Bhakti
+3. Bhav Bhakti
+4. Prem Bhakti
